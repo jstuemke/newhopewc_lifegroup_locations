@@ -1,0 +1,1 @@
+# newhopewc_lifegroup_locations
